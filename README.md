@@ -4,4 +4,4 @@
 
 - 📲 Reach me on **anasbeg50@gmail.com**
 
-- 📄 My Resume [https://docdro.id/oCdhM6J](https://docdro.id/oCdhM6J)
+- 📄 My Resume [https://docdro.id/2qYhfoF](https://docdro.id/2qYhfoF)
